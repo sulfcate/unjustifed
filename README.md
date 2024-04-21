@@ -1,4 +1,1 @@
-aicix - justify,
-read rentry b4int.
-https://arab.org/click-to-help/palestine/
-<-- click to help palestine while you can !!
+https://media.discordapp.net/attachments/1160143961286004827/1160941237562527805/makesweet-0iu2ph.gif?ex=662fa948&is=661d3448&hm=c64cbb6e02953b99cb0b323255543f2c26336be8930ae90a77aa9f29164aed6b&
